@@ -90,8 +90,7 @@ If your heart flutters at this vision — reach out.
 이 비전에 가슴이 떨린다면, 주저하지 말고 손을 내밀어 주세요.
 
 - 📧 Contact: free9204@gmail.com
-- 💬 Community: *coming soon*
-
+- 💬 Community: 🔗 GitHub: https://github.com/free9204-bot/on-you-flow
 ---
 
 <div align="center">
