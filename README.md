@@ -89,7 +89,7 @@ We value the **temperature of your heart** over mere technical skill.
 If your heart flutters at this vision — reach out.  
 이 비전에 가슴이 떨린다면, 주저하지 말고 손을 내밀어 주세요.
 
-- 📧 Contact: *coming soon*
+- 📧 Contact: free9204@gmail.com
 - 💬 Community: *coming soon*
 
 ---
